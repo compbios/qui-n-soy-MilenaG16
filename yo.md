@@ -1,6 +1,4 @@
-# Deissy Milena Garcia <img src="[https://your-image-ur](https://thumbs.dreamstime.com/b/user-profile-my-account-avatar-login-icon-woman-female-face-smile-symbol-flat-vector-human-lady-person-member-sign-186506698.jpg" width="100" height="100" >  
-
-
+# Deissy Milena Garcia <img src="[https://your-image-ur](https://thumbs.dreamstime.com/b/user-profile-my-account-avatar-login-icon-woman-female-face-smile-symbol-flat-vector-human-lady-person-member-sign-186506698.jpg" width="300" height="300" >  
 Correo: dmgarciag@javeriana.edu.co 
 # Educación
 Profesional en fonoaudiología. Universidad Nacional de Colombia
