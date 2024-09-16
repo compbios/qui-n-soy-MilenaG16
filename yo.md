@@ -1,5 +1,7 @@
 # Deissy Milena Garcia <img src="https://thumbs.dreamstime.com/b/user-profile-my-account-avatar-login-icon-woman-female-face-smile-symbol-flat-vector-human-lady-person-member-sign-186506698.jpg" width="300" height="300">  
 Correo: dmgarciag@javeriana.edu.co 
+# Mascotas e intereses
+En mi tiempo libre me gusta ir a cine y leer algunas novelas. Me gustan las mascotas, especialmente los perrros. Mi perro se llama Bruno, tiene 13 años y lo adoptamos hace dos años.
 # Educación
 Profesional en fonoaudiología. Universidad Nacional de Colombia
 Magíster en psicología. Universidad Nacional de Colombia
